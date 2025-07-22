@@ -8,17 +8,19 @@
 
 ![IMG_8225](https://github.com/user-attachments/assets/059ec37f-02a7-4a87-ab1f-fc85a3cd03b6)
 
-
 laika ⭐️ she/they ⭐️ minor (15)
 
 asexual omni/demiromantic 
 ungendered
+
+adhd
 
 ![IMG_8225](https://github.com/user-attachments/assets/7a63145b-2880-4516-a787-8e645aea3ade)
 
 c+h always (unless name says otherwise) 
 usually w2i. i am usually doing something else. 
 do not copy my skins. inspiration is fine
+interest in ponytown ebbs & flows. i could be playing it daily for a couple weeks and not at all the next. 
 
 ![IMG_8225](https://github.com/user-attachments/assets/22bcf791-89ad-4b3a-b296-02905bc4e23c)
 
@@ -28,4 +30,8 @@ im also primarily in the object show fandom
 
 my favorite bands are gorillaz and talking heads. i primarily listen to new wave and dabble in other genres. mostly rock genres.
 
-(more info in strawpage)
+im a selfshipper. primary f/os are noodle (gorillaz) and gerry keay (tma). i'm sharing. 
+
+byi/kind of dni, more interests, & more selfshipping info in strawpage
+
+![IMG_8225](https://github.com/user-attachments/assets/6818e05f-67af-4ac7-bc81-ca9785535bed)
