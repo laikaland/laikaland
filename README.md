@@ -10,3 +10,13 @@
 
 
 laika ⭐️ she/they ⭐️ minor (15)
+
+asexual omni/demiromantic 
+ungendered
+
+![IMG_8225](https://github.com/user-attachments/assets/7a63145b-2880-4516-a787-8e645aea3ade)
+
+c+h always (unless name says otherwise) 
+usually w2i. i am usually doing something else. 
+do not copy my skins. inspiration is fine
+
