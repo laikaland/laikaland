@@ -38,7 +38,9 @@ byi/kind of dni, more interests, & more selfshipping info in strawpage
 
 ![IMG_3134](https://github.com/user-attachments/assets/dd94d86f-703f-43c6-a084-7a3b9f48f25a)
 ![IMG_5676](https://github.com/user-attachments/assets/3e7435f6-b25f-4623-9b3e-e9f74804a86e)
-![IMG_7473](https://github.com/user-attachments/assets/dec445dd-4dd2-4fb4-ae4e-b321ddcd951a)
-![IMG_8229](https://github.com/user-attachments/assets/99ee176f-2e36-4884-84f3-531092af4f21)
+![IMG_8229](https://github.com/user-attachments/assets/58b9475f-12db-49b0-9b61-013e88ef9561)
+![IMG_8235](https://github.com/user-attachments/assets/3dd32672-b639-4833-9554-6754849234b9)
+![IMG_8236](https://github.com/user-attachments/assets/f8326218-b65c-48c4-9471-d0b9ea1bf3a8)
+
 
 ![IMG_8204](https://github.com/user-attachments/assets/7b6a122e-1740-47a4-ba2d-190c7dbefa4c)
