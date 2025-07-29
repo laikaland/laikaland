@@ -19,7 +19,7 @@ adhd
 
 c+h always (unless name says otherwise) 
 usually w2i. i am usually doing something else. 
-do not copy my skins. inspiration is fine
+do not copy my skins. inspiration is fine.
 interest in ponytown ebbs & flows. i could be playing it daily for a couple weeks and not at all the next. 
 
 ![IMG_8225](https://github.com/user-attachments/assets/22bcf791-89ad-4b3a-b296-02905bc4e23c)
