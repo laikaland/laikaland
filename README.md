@@ -24,7 +24,7 @@ interest in ponytown ebbs & flows. i could be playing it daily for a couple week
 
 ![IMG_8225](https://github.com/user-attachments/assets/22bcf791-89ad-4b3a-b296-02905bc4e23c)
 
-hyperfixated on gorillaz, deltarune, & the magnus archives
+hyperfixated on gorillaz & the magnus archives
 
 im also primarily in the object show fandom
 
