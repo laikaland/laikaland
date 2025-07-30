@@ -1,6 +1,6 @@
-![IMG_8218](https://github.com/user-attachments/assets/53c5704c-3942-4152-8e36-7e02b5741334)
+![IMG_8372](https://github.com/user-attachments/assets/a0917711-144a-424d-a701-b542f36dcdc0)
 
-* Welcome to color cafe. Let us warm your day.
+* maybe in time / you'll want to be mine
 
 ![IMG_8225](https://github.com/user-attachments/assets/9be36e8c-18b4-4f2c-95b6-fe4816c227a7)
 
