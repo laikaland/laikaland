@@ -30,7 +30,7 @@ im also primarily in the object show fandom
 
 my favorite bands are gorillaz and talking heads. i primarily listen to new wave and dabble in other genres. mostly rock genres.
 
-im a selfshipper. primary f/os are noodle (gorillaz) and gerry keay (tma). i'm sharing. 
+im a selfshipper. primary f/os are noodle (gorillaz) and gerry keay (tma). i'm selectively sharing. 
 
 byi/kind of dni, more interests, & more selfshipping info in strawpage
 
