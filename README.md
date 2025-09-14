@@ -10,8 +10,8 @@
 
 laika ⭐️ she/they ⭐️ minor (15)
 
-asexual omni/demiromantic 
-ungendered
+unabeled / ungendered
+aspec
 
 adhd
 
