@@ -10,7 +10,7 @@
 
 laika ⭐️ she/they ⭐️ minor (15)
 
-unabeled / ungendered
+unlabeled / ungendered
 aspec
 
 adhd
