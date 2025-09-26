@@ -32,7 +32,7 @@ my favorite bands are gorillaz and talking heads. i primarily listen to new wave
 
 im a selfshipper. primary f/os are noodle (gorillaz) and gerry keay (tma). i'm selectively sharing. 
 
-byi/kind of dni, more interests, & more selfshipping info in strawpage
+proship dni. i am not comfortable with you interacting. gorillaz fandom interact with caution
 
 ![IMG_8225](https://github.com/user-attachments/assets/6818e05f-67af-4ac7-bc81-ca9785535bed)
 
