@@ -33,7 +33,7 @@ my favorite bands are gorillaz and talking heads. i primarily listen to new wave
 
 im a selfshipper. primary f/os are noodle (gorillaz) and gerry keay (tma). i'm selectively sharing. 
 
-proship dni. i am not comfortable with you interacting. gorillaz fandom interact with caution
+proship dni. i am not comfortable with you interacting. gorillaz fandom interact with caution; i get very worked up over fanon interpretation. do not talk to me about murdad or most ships (especially noodle ships. things like 2russ and 2dace are fine anything else is on thin ice)
 
 ![IMG_8225](https://github.com/user-attachments/assets/6818e05f-67af-4ac7-bc81-ca9785535bed)
 
