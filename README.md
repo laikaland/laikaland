@@ -10,3 +10,5 @@
 
 laika ⭐️ she/they ⭐️ minor (15)
 
+alts: @last-living-soul , @late-omen
+
