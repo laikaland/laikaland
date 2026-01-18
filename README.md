@@ -12,5 +12,7 @@ laika ⭐️ she/they ⭐️ minor (15)
 
 very very shy, i dont really like to int first. i'm scared of people (/nsrs). feel free to int though, i'm usually up to chat 
 
+  - gorillaz fandom and 2d/murdoc selfshippers (i have nonsharing friends i'm really loyal to) iwc
+
 alts: @last-living-soul , @late-omen
 
