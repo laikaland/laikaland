@@ -8,7 +8,7 @@
 
 ![IMG_8225](https://github.com/user-attachments/assets/059ec37f-02a7-4a87-ab1f-fc85a3cd03b6)
 
-laika ⭐️ she/they ⭐️ minor (15)
+laika ⭐️ she/they ⭐️ minor (13+)
 
 very very shy, i dont really like to int first. i'm scared of people (/nsrs). feel free to int though, i'm usually up to chat 
 
