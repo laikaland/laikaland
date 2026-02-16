@@ -12,7 +12,7 @@ laika ⭐️ she/they ⭐️ minor (13+)
 
 very very shy, i dont really like to int first. i'm scared of people (/nsrs). feel free to int though, i'm usually up to chat 
 
-will occasionally go offline for weeks at a time cause i loose interest sometimes. i'll usually be back soon enough.
+will occasionally go offline for weeks at a time cause i lose interest sometimes. i'll usually be back soon enough.
 
   - gorillaz fandom and 2d/murdoc selfshippers (i have nonsharing friends i'm really loyal to) iwc
 
