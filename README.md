@@ -10,7 +10,7 @@
 
 laika ⭐️ she/they ⭐️ minor (13+)
 
-very very shy, i dont really like to int first. i'm scared of people (/nsrs). feel free to int though, i'm usually up to chat 
+introverted, socially anxious, & fairly awkward at times. i don't usually int first, i'm not good in social interaction a lot of the time
 
 will occasionally go offline for weeks at a time cause i lose interest sometimes. i'll usually be back soon enough.
 
