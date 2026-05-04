@@ -15,6 +15,7 @@ introverted, socially anxious, & fairly awkward at times. i don't usually int fi
 will occasionally go offline for weeks at a time cause i lose interest sometimes. i'll usually be back soon enough.
 
   - gorillaz fandom and 2d/murdoc selfshippers (i have nonsharing friends i'm really loyal to) iwc
+  - noodle (gorillaz) ships heavy dni (eg 2nu / nuace etc)
 
 alts: @last-living-soul , @late-omen
 
