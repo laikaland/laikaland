@@ -8,7 +8,7 @@
 
 ![IMG_8225](https://github.com/user-attachments/assets/059ec37f-02a7-4a87-ab1f-fc85a3cd03b6)
 
-laika ⭐️ she/they ⭐️ minor (13+)
+laika ⭐️ she/they ⭐️ minor (15+)
 
 introverted, socially anxious, & fairly awkward at times. i don't usually int first, i'm not good in social interaction a lot of the time
 
